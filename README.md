@@ -1,4 +1,4 @@
-### Hi there my name is Tanisha (pronouns: she/her), 
+### Hi there my name is Tanisha, 
 I am a computer information systems student with a keen interest in cybersecurity, expected to graduate Dec. 2023. 
 
 <!--
